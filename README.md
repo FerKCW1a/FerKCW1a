@@ -1,4 +1,4 @@
-## Hi there 👋
+## seja bem-vindo(a)!🐳🦭🐬
 
 <!--
 **FerKCW1a/FerKCW1a** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
